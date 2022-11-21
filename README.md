@@ -1,6 +1,6 @@
 # *5 reasons on why you should stan Treasure*
 ---
-## TREASURE is a 10-member group consisting of: Choi Hyunsuk, Park Jihoon, Kanemoto Yoshinori, Kim Junkyu, Yoon Jaehyuk, Hamada Asahi, Kim Doyoung, Watanabe Haruto, Park Jeongwoo, and So Junghwan. They debuted at August 7, 2020 with the song "Boy". But whatever happens, Two members, Takata Mashiho and Bang Yedam left the group due to their personal problems. Treasure may be 10 in my eyes but 12 in my heart. ##
+## TREASURE is a 10-member group (12 members before) consisting of: Choi Hyunsuk, Park Jihoon, Kanemoto Yoshinori, Kim Junkyu, Yoon Jaehyuk, Hamada Asahi, Kim Doyoung, Watanabe Haruto, Park Jeongwoo, and So Junghwan. They debuted at August 7, 2020 with the song "Boy". Two members, Takata Mashiho and Bang Yedam left the group due to their personal problems. Treasure may be 10 in my eyes but 12 in my heart. ##
 
 > ## Firstly, they are a funny and entertaining group. Some kpop idols look and act too stiff that they don't really spend their life to the fullest, unlike Treasure who enjoys both their idol life and their personal life. ##
 
